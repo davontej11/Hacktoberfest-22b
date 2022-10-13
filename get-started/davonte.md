@@ -1,3 +1,3 @@
 # Hello World
 
-Davonté :japanese_ogre:
+Davonté J :boom:
